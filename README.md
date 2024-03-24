@@ -1,5 +1,5 @@
 # 💫 About Me:
-Hello, I am Nurzarifah binti Azizan. Currently, a fourth-year student pursuing a Bachelor of Computer Science (Bioinformatics) at UTM. <br>I love to learn new things regarding technology and feel free to connect with me.<br>⚡ Fun fact: I am a cat lover<br>🔭 I’m currently working on Final Year Project 2 on Protease<br>🤝  I'm willing to work together on the assignment with someone who has a creative mindset.<br><br><br>
+Hello, I am Nurzarifah binti Azizan. Currently, a fourth-year student pursuing a Bachelor of Computer Science (Bioinformatics) at UTM. <br>I love to learn new things regarding technology and feel free to connect with me.<br>⚡ Fun fact: I am interested in anything related to bio and tech <br>🔭 I’m currently working on Final Year Project 2 on Protease<br>🤝  I'm willing to work together on the assignment with someone who has a creative mindset.<br><br><br>
 
 
 ## 🌐 Socials:
